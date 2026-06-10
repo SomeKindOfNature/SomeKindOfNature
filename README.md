@@ -1,8 +1,8 @@
 
 
 
-<p align="center"> V Fav Characters PLEASE INT V </p>
-<img width="1272" height="157" alt="2025_11_16_10r_Kleki" src="https://github.com/user-attachments/assets/bcee55f0-6e3c-40bf-8f96-d95b727c0953"/>
+<p align="center"> V Hai im Loretta </p>
+<img width="1272" height="157" alt="2025_11_16_10r_Kleki" src="https://i.pinimg.com/736x/4d/b4/67/4db467ca79a8e0bd02f69bc8811098a4.jpg"/>
 
 <img width="1822" height="432" alt="2026_03_02_0vp_Kleki" src="https://github.com/user-attachments/assets/1384c6eb-72f6-4c3a-821c-5928c5ac69e7" />
 
