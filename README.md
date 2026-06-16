@@ -16,3 +16,8 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=somekindofnature&color=red&label=Cherries+picked:">
 <p align="center">
+
+<p align="center">
+  To the old friends constantly trying to get me to feel bad: I didn't text bc I had my own shit going on, stop being selfish. I don't feel bad for focusing on myself, and your stalking behavior makes me glad you blocked me and assumed I had bad intentions. I want nothing to do with you. Please let me be and move on! I promise you will feel better once you do the same way I did! 
+<p align="center">
+
